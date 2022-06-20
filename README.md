@@ -1,3 +1,9 @@
+If i have the same files as other repos im give them all credit below! 
+Glixxzzy - https://github.com/glixxzzy/
+HankyPoo7 - https://github.com/Hankypoo7/
+any others just tell me ill credit them!
+
+
 - 👋 Hi, I’m @NotTrxp
 - 👀 I’m interested in hacks
 - 🌱 I’m currently learning Blooket hacks
